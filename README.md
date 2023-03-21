@@ -1,2 +1,4 @@
-Hi there, Im a 17 yr old game developer/student (as of 2021).
-I do literally nothing for humanity. Thank me never.
+Hello, you can call me Tonse. Im a suffisticated "I have no fucking idea what im doing" person!
+
+
+genderfluid is not for consumption.
